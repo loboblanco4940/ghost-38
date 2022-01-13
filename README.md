@@ -1,2 +1,2 @@
-# ghost-38
-ighbytgnr6cm5ecm57c5edxmygy8
+# P-38
+juego del fantasma muy divertido y entretenido
